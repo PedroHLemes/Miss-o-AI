@@ -1,1 +1,1 @@
-# Miss-o-AI
+# Miss-o-IA
